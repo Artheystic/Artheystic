@@ -1,0 +1,7 @@
+- 👋 Hi, I’m @Artheystic
+- 👀 I’m interested in games and the process behind doing it!
+- 🌱 I’m currently learning phyton, blender for 3D.
+- 💞️ I’m looking to collaborate on gamejams!
+- 📫 How to reach me: here! or at juhmascarello914@hmail.com
+- 😄 Pronouns: They/them
+- ⚡ Fun fact: my favorite game is outerwilds!
